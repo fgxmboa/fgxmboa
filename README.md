@@ -56,6 +56,6 @@ Mi objetivo es unirme a un equipo donde pueda seguir creciendo como **Full‑Sta
 | | |
 |---|---|
 | 💼 LinkedIn | [in/francisco‑gamboa](https://www.linkedin.com/in/fgxmboa/) |
-| ✉️ Correo | fgxmboa@ghotmail.com |
+| ✉️ Correo | fgxmboa@hotmail.com |
 
 ---
